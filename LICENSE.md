@@ -1,10 +1,10 @@
-Ultra Seguro Windscribe Complemento | enmascaramiento de IP + cambio de servidor es el mejor Windscribe complemento con enmascaramiento de IP y cambio de servidor. Seguro y
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://foundtailorthink.github.io/windscribe-kx20/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
